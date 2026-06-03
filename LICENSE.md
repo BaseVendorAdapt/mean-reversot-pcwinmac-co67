@@ -1,4 +1,4 @@
-# 
+# Código aberto mean reversion trading bot extensões para Mac OS | Turbo mean reversion trading bot extensões para PC Windows. Com feeds de preços em tempo real e limitação de taxa — otimizado para máximo desempenho em cada plataforma.
 
 
 
